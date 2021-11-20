@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MemeCakeIslandCodes ( MY YT Channel is Meme Cake Island )
+- 👋 Hi, I’m @MemeCakeIslandCodes ( MY YT Channel is Geeky Trust Falls )
 - 👀 I’m interested in COding, Maths, Physics, Playing Instruments
 - 🌱 I’m currently learning Python but I have learnt JS, HTML
 - 📫 How to reach me - gamertrex202@gmail.com 
